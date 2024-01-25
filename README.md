@@ -1,4 +1,4 @@
-Hey! I'm Fran, 26, based in Manchester, UK.
+Hey! I'm Fran, 27, based in Manchester, UK.
 
 Writer, photographer, psych undergrad, complete nutcase.
 Currently working on a portfolio/oldweb revival/for-fun website hosted here on GitHub.
